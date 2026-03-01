@@ -28,6 +28,9 @@
 	౨ৎ 𝙰𝚏𝚔 𝚘𝚏𝚝𝚎𝚗 / 𝚠𝟸𝚒
 
 	
+	౨ৎ 𝙼𝚞𝚕𝚝𝚒-𝚏𝚊𝚗𝚍𝚘𝚖
+
+	
 <img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/3524e4d3-d4b5-49c8-b7de-f4c6b0a1d37c" />
 
 
