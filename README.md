@@ -55,12 +55,3 @@
  𝙸 𝚊𝚖 𝚊𝚗 𝚊𝚛𝚝𝚒𝚜𝚝 𝚊𝚗𝚍 𝚐𝚊𝚌𝚑𝚊𝚙𝚕𝚊𝚢𝚎𝚛!! 
 
 
-
-<img width="736" height="552" alt="image" src="https://github.com/user-attachments/assets/7a61af48-03d4-4dfb-9345-6824d8a95991" />
-
-
-
-𝙼𝚢 𝚊𝚛𝚝𝚠𝚘𝚛𝚔 || 𝙳𝙾 𝙽𝙾𝚃 𝚂𝚃𝙴𝙰𝙻 𝙾𝚁 𝚁𝙴-𝚄𝙿
-
-
-
