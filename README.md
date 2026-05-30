@@ -1,11 +1,4 @@
-
-<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/895489bd-3966-42f3-8953-ab4e957cd020" />
-
-
-
-
-𝐇𝐄𝐋𝐋𝐎 𝐇𝐄𝐋𝐋𝐎 𝐖𝐄𝐋𝐂𝐎𝐌𝐄 𝐓𝐎 𝐌𝐘 𝐖𝐀𝐋𝐋<𝟑𝟑𝟑
-
+<img width="748" height="250" alt="image" src="https://github.com/user-attachments/assets/ff4886ec-c082-417b-bdac-1297315fbe6d" />
 
 
     ౨ৎ Call me Minh Tranq or Julia
